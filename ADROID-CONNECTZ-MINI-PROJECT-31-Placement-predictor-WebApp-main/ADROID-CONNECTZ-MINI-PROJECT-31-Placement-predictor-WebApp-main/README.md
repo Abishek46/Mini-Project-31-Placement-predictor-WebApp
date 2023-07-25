@@ -1,1 +1,0 @@
-# ADROID-CONNECTZ-MINI-PROJECT-31-Placement-predictor-WebApp
